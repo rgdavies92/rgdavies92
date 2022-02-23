@@ -11,5 +11,5 @@ Outside of work, I enjoy...
 🏔️ Mountains - Hiking or skiing, I'd choose mountains over a beach any day <br>
 📚 Reading - top books of 2021 were 'A Gentleman In Moscow' by Amor Towles and 'Factfullness' by Hans Rosling <br>
 
-📬Connect with Me📬
+📬Connect with Me📬 <br>
 I am accessible on [LinkedIn here](https://www.linkedin.com/in/rgdavies92/)

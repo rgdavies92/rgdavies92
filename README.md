@@ -1,4 +1,4 @@
-### Hi, I'm Robert Davies, somtimes Bob. 
+### 👋 Hi, I'm Robert Davies, somtimes Bob. 
 
 I'm a mathematician and geophysicist, currently working to forge a career in data science. This GitHub page should moslty be a portfolio to showcase some work.
 

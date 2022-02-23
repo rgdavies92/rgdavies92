@@ -12,4 +12,4 @@ Outside of work, I enjoy...
 📚 Reading - top books of 2021 were 'A Gentleman In Moscow' by Amor Towles and 'Factfullness' by Hans Rosling <br>
 
 📬Connect with Me📬 <br>
-I am accessible on [LinkedIn here](https://www.linkedin.com/in/rgdavies92/)
+I am accessible on [LinkedIn](https://www.linkedin.com/in/rgdavies92/)

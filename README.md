@@ -7,7 +7,9 @@ After 6 years data processing as a seismic processing geophysicist I enrolled in
 Outside of work, I enjoy...
 
 ⚽ Playing football and watching Everton FC 
+
 🏔️ Mountains - Hiking or skiing, I'd choose mountains over a beach any day
+
 📚 Reading - top books of 2021 were 'A Gentleman In Moscow' by Amor Towles and 'Factfullness' by Hans Rosling
 
 📬Connect with Me📬
